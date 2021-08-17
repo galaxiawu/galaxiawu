@@ -1,5 +1,5 @@
-- 💫 hi! i'm galaxia
-- i build trust with design 💖
+💫 hi! i'm galaxia
+i build trust with design 💖
 
 
 <!---
