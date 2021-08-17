@@ -1,4 +1,4 @@
-💫 hi! i'm galaxia
+💫 hi! i'm galaxia  
 i build trust with design 💖
 
 
