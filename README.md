@@ -1,6 +1,4 @@
-💫 hi! i'm galaxia  
-i build trust with design 💖
-
+hey 
 
 <!---
 galaxiawu/galaxiawu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
